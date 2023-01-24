@@ -1,1 +1,1 @@
-# CKPWebSiteComments
+# ChrisKendrickPhotography.com web site comments
